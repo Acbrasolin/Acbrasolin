@@ -109,6 +109,7 @@ src="https://github-readme-stats.vercel.app/api/top-langs/?username=Acbrasolin&l
 ### Jesus Cristo é o senhor!     
 
 
+<!-- Jesus é seu único salvador, entregue-se a ele! João 3:16 "Por que Deus amou o mundo de tal maneira que deu seu filho unigênito para que todo que nele crê não pereça mas tenha vida eterna!" -->
                    
           
        
